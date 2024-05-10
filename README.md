@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ksthx
+- 👀 I’m interested in machine learning, travelling and music.
+- 🌱 I’m currently learning AI engineering
+- 📫 How to reach me - shresthakush24@gmail.com
+- 😄 Pronouns: he/him
